@@ -1,1 +1,1 @@
-# HYUxNICC_ICT_business_project
+# HYUxRUPP_ICT_business_project
